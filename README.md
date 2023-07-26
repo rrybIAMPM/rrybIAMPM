@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @rrybIAMPM
 
-- cos cos cos cos cos
-
 
 
 <!---
